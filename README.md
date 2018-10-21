@@ -1,4 +1,10 @@
-You've always wanted to have so much money that you can buy everything you want then just follow my video instructions 
+GERMAN
+
+Du wolltest schon immer so viel Geld haben, dass du alles kaufen kannst, was du willst, dann folge einfach meinen Videoanweisungen. 
+
+ENGLISH
+
+You've always wanted to have so much money that you can buy everything you want then just follow my video instructions
 
 Instruction :https://www.youtube.com/watch?v=4Aqlx2fr2tA&feature=youtu.be
 
