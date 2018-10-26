@@ -1,3 +1,6 @@
+ ! OUTDATED !
+
+
 GERMAN
 
 Du wolltest schon immer so viel Geld haben, dass du alles kaufen kannst, was du willst, dann folge einfach meinen Videoanweisungen. 
